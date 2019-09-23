@@ -1,2 +1,2 @@
-# project-1-recipe-markdown
+# about
 This is my Sunday breakfast
