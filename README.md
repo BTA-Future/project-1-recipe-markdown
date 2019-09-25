@@ -1,2 +1,2 @@
 # about
-This is my Sunday breakfast
+When i get home for school i make this as a quick snack
