@@ -20,6 +20,7 @@ When i get home for school, i'll make this as a quick snack
 4. Then put 1 slice of cheese on 1 bread
 5. Then put the bacon on top that cheese
 6. Then put another slice of cheese on top the bacon 
-7. Then heat up until cheese has melted and bread is crispy
+7.and lastly the other slice of bread on the top
+8. Then heat up until cheese has melted and bread is crispy
 # notes
 you can choose any type of bacon, cheese or even add eggs. be creative!
